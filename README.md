@@ -1,1 +1,0 @@
-# cubiertosgold.github.io
